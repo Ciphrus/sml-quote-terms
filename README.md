@@ -1,6 +1,3 @@
-# sml-quote-terms
-Public terms and conditions for quotes from SML Signs &amp; More
-
 # QUOTE TERMS AND CONDITIONS
 
 SML Signs & More  
