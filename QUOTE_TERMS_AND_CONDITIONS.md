@@ -1,0 +1,111 @@
+QUOTE TERMS AND CONDITIONS  
+SML Signs & More  
+400 Scruggs Rd Suite 700  
+Moneta, VA 24121  
+
+QUOTE TERMS: GENERAL TERMS AND CONDITIONS
+SML Signs & More and Customer enter into the following agreement (“Contract”) regarding services provided for the Project identified above and more specifically described in the details of this Contract and agree to the following terms and conditions:
+
+Note: All contracts involving vehicle wraps and/or graphics also agree to the additional "Vehicle Graphics/Wraps Terms & Conditions".
+
+PROJECT DESCRIPTION & AMOUNT
+The Project shall be completed in accordance with the details of this Contract, unless changes are approved by both parties in writing. Customer shall pay SML Signs & More in-full for the Project as invoiced by SML Signs & More in the amount and increments listed in the details of this Contract.
+
+ADDITIONAL WORK
+Unless stated as part of the Contract, Customer shall pay an additional amount for the Project in the event that:
+
+(i) inadequate access to installation location is provided or underground obstructions exist, including, without limitation, existence of solid rock, pipes, underground wires, etc.;
+
+(ii) SML Signs & More must perform services related to obtaining a variance;
+
+(iii) SML Signs & More is required to provide documentation to obtain permits and approvals for the Project other than the details of this Contract described above, including, without limitation, shop drawings, samples, design layouts and modifications to architectural site plans;
+
+(iv) SML Signs & More is required to remove free-standing signs or prior signs on a structure located on or near the installation site;
+
+(v) SML Signs & More must obtain permits or approvals; or
+
+(vi) SML Signs & More is requested or required to do any other additional work related to the Project that is not described in the details of this Contract.
+
+PRIVATE LINES
+All private lines must be clearly marked by the Customer (such as sprinkler systems and ground lighting). Any damage to private lines not clearly marked is the responsibility of the Customer.
+
+TAXES
+Customer agrees to pay all taxes that are due or may become due by Customer or that may be levied upon SML Signs & More in connection with the Project, including without limitation, all sales, use, and rental taxes levied by any federal, state, county or municipal authority or political subdivision thereof. The final invoice is the controlling element of this contract.
+
+LATE FEES
+Customer agrees that all amounts not paid by due date stated on invoice sent by SML Signs & More are subject to a late fee of 18% per annum or the maximum rate allowable by law, and Customer agrees to pay such fees.
+
+OWNERSHIP OF SIGNAGE PROPERTY
+SML Signs & More shall contribute parts and materials to manufacture the signage related to the Project (“Signage Property”). Customer acknowledges and agrees that all Signage Property is owned by the SML Signs & More until receipt of final payment for the Project.
+
+Customer expressly agrees that title to the Signage Property is retained by SML Signs & More until Customer’s full payment for the Project is received. If Customer fails to make payment in full for the Project within 90 days of completion of the Project, then SML Signs & More, or SML Signs & More's representative, in its sole discretion, shall have the right, and is hereby authorized and empowered to take and remove the Signage Property from the installation site, and resume possession of the Signage Property, wherever found, without any liability for damages or other claim whatsoever, with or without process of law, and without prejudice to further enforcement of any balance of such obligation or expenses remaining due.
+
+OWNERSHIP OF DESIGNS
+SML Signs & More may provide Customer with designs and artwork created by the SML Signs & More in connection with the Project (“SML Signs & More Designs”). All right, title and interest in and to the SML Signs & More Designs is owned exclusively, throughout the world, and in perpetuity by the SML Signs & More (including all copyrights and patents, derivatives, renewals and extensions thereof).
+
+Any and all use of the SML Signs & More Designs by Customer, its employees or agents is expressly prohibited without the written consent of the SML Signs & More and such written consent is subject to payment in full for the Project and the SML Signs & More’s design service.
+
+Until payment in full is received, the SML Signs & More shall have the sole and exclusive right to use the SML Signs & More Designs, in whole or in part, in whatever manner the SML Signs & More may desire, including without limitation, the right to cut, edit, revise, alter and/or otherwise modify the SML Signs & More Designs and to freely use, perform, distribute, exhibit and exploit such materials and license others to do so in any and all media now known or hereafter devised and shall have the sole and exclusive right to copyright or patent the SML Signs & More Designs in the SML Signs & More’s name, as the owner and author thereof.
+
+PERMITS, LICENSES AND COMPLIANCE
+Unless otherwise stated in the Details of this Contract, the Customer shall obtain all necessary installation permits related to the Project. Customer shall be responsible for maintaining all necessary permits or variances from public authorities. Customer shall be responsible for assuring the Project designs, artwork and/or specifications meet all applicable organizational and/or industry-specific guidelines and/or regulations.
+
+CHANGE ORDERS
+Any changes to the Project that are requested by Customer shall be agreed to by the parties in an updated Contract, which, upon signature by all parties shall be the binding Contract.
+
+SML Signs & More may, in its sole discretion, stop all work in connection with the Project until the updated Contract is signed by Customer.
+
+CUSTOMER DELAY
+SML Signs & More shall not be liable for any delay in the performance of this Contract caused by or resulting from Customer’s acts, omissions, or delays in its obligations under this Contract.
+
+TERMINATION
+In the event that this Contract is terminated, Customer shall pay SML Signs & More for all work in progress related to the Project up to date of termination plus a cancellation fee of 25% of the Total Contract Amount.
+
+LIMITED WARRANTY
+ALL SIGNAGE PROPERTY AND SERVICES PROVIDED BY SML Signs & More IS GUARANTEED FOR A PERIOD OF ONE YEAR AGAINST MECHANICAL DEFECTS.
+
+Expressly excluded from this warranty are temporary signs, banners and graphics, acts of God, vandalism, customer modification, horizontal applications, such as hoods, roofs, trunks, or defects due to Customer negligence and any other causes beyond the control of the SML Signs & More.
+
+All warranties are void with respect to portions of Project not manufactured, performed or serviced by SML Signs & More, its employees or agents.
+
+DISCLAIMER OF WARRANTIES
+This contract is made with the understanding that there are no expressed or implied warranties other than those contained in this Contract and that there are no warranties of any kind, expressed or implied, that the goods shall be merchantable or fit for any particular use or purpose other than those specifically mentioned herein.
+
+Any product ratings listed in this Contract are provided by manufacturers for durability reference only and are not expressions or implications of warranty.
+
+FORCE MAJEURE
+SML Signs & More shall not be liable for failure of or delays in the performance of the terms of this Contract resulting from strikes, breakage, fire, labor disputes, unforeseen commercial delays, war, acts of God, or other causes beyond the control of the SML Signs & More.
+
+In addition, the Customer shall not hold the SML Signs & More responsible, and SML Signs & More shall not be liable for any damage to landscaping that occurs during installation. SML Signs & More shall not be liable for roof warranty work if roof membrane is penetrated as part of the normal installation process. The Customer agrees to pay original roof contractor for any needed repairs or patching in order to keep original roof warranty in tact.
+
+MECHANICS LIEN
+Customer acknowledges and agrees that the SML Signs & More shall provide services and furnish materials and labor to manufacture signage related to the Project and further agrees that such materials or labor is for improvement of real property.
+
+Therefore, unless otherwise prohibited by state law, Customer authorizes SML Signs & More to file a Mechanic's Lien for any amounts due under this Contract. The Customer further agrees to pay SML Signs & More an administration fee for all costs incurred in filing of a Mechanic's Lien, and further agrees to pay all legal fees and court costs in connection with the enforcement of a Mechanic’s Lien.
+
+INDEMNIFICATION
+The Customer shall indemnify and hold SML Signs & More, and its employees and agents harmless from and against any and all claims, damages, losses and expenses, including, without limitation, attorney fees and court costs arising out of or resulting from the performance of the services, if any such claims, damage, loss or expense is caused in whole or in any part by any act or omission of the Customer, or Customer’s employees or agents.
+
+INDEPENDENT CONTRACTOR STATUS
+In this Contract, SML Signs & More shall be deemed an independent contractor.
+
+It is the intention of the parties that:
+
+(i) the SML Signs & More shall specifically not occupy the status of an agent, servant, or employee of the Customer; and
+
+(ii) the relationship between the SML Signs & More and the Customer shall specifically not be that of a partnership, joint venture, or other similar association.
+
+During the progress of performance of the Project, Customer will not, without SML Signs & More’s prior written consent, direct or attempt to direct the employees, agents, or subcontractors involved in performance of services related to the Project or the installation of the Signage Property.
+
+MISCELLANEOUS
+(i) This Contract shall be governed by and construed in accordance with the laws of the Commonwealth of Virginia without regard to choice of law principles, and Customer hereby irrevocably submits to the jurisdiction of Virginia and federal courts in Virginia for all disputes or legal claims arising from this Contract;
+
+(ii) In any legal action brought by or against the SML Signs & More in relation to this Contract, the prevailing party shall be entitled to recover its costs and reasonable attorney fees in addition to any other relief that may be awarded;
+
+(iii) If a court should find one or more of the terms of this Contract unenforceable, the remaining terms will nonetheless remain binding on the parties;
+
+(iv) This Contract is the complete agreement between the parties regarding the subject matter set forth herein, and this Contract supersedes all previous oral or written agreements regarding this subject matter;
+
+(v) This Contract cannot be voided or amended without the written agreement by an officer of SML Signs & More; and
+
+(vi) Customer shall not make any assignment of this Contract, but SML Signs & More may assign this Contract in its sole discretion. 
